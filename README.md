@@ -1,2 +1,5 @@
 # hello-world
-just another repository
+
+hi guyzzzzzzz
+
+aman here, to greet the wonderful people as like me.
